@@ -4,3 +4,4 @@
 4 you must be honest person
 5 i love my country
 6 no
+7 yes i know him but not well
